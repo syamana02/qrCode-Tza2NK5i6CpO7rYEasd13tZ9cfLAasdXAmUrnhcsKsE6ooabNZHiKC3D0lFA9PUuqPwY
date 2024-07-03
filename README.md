@@ -1,0 +1,1 @@
+# qrCode-Tza2NK5i6CpO7rYEasd13tZ9cfLAasdXAmUrnhcsKsE6ooabNZHiKC3D0lFA9PUuqPwY
